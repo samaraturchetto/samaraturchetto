@@ -18,4 +18,4 @@ Sou uma engenheira civil que está embarcando em uma nova aventura: a transiçã
 * 📝 Portifólios em desenvolvimento
 * 🔍 Ainda atuo como Engenheira Civil, em busca da primeira oportunidade pra brilhar ✨
 * 🌟 Mestre em me virar nos 30, hábil na arte de me adaptar e encontrar soluções
-* 😸 Tenho uma miniatura de pantera chamadoa Thomas
+* 😸 Tenho uma miniatura de pantera que se chama Thomas
